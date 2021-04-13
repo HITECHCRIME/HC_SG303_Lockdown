@@ -32,7 +32,7 @@ https://www.youtube.com/watch?v=jLAUIxq0BYs&list=WL&index=1
 ```
 Carry on the rage, 
 I'm ready for the roll out
-Steady in the motion, 
+Steady in the motion, (steady at the bottom)
 definition of a lockdown 
 Clear lil savage, 
 Imma ease off nothing 
