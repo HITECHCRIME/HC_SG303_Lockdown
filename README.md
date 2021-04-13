@@ -22,22 +22,30 @@ Description.
 ## Lyrics
 
 ```
-Carry on the rage, 
-I'm ready for the roll out
-Steady in the motion, 
-definition of a lockdown 
-Clear lil savage, notion Imma ease off nothing
+Carry on the rage, I'm ready for the roll out
+Steady in the motion, definition of a lockdown 
+Clear lil savage, Imma ease off nothing nothing to be feared
+Mind is ready, no, keep tellin' me I'm done now
 
+Carry on the rage, I'm ready for the roll out
+Steady in the motion, definition of a lockdown 
+Clear lil savage, Imma ease off nothing nothing to be feared
+Mind is ready, no, keep tellin' me I'm done now
+
+Dizzy boy lost in the bliss of the words,
+really hiss kills heavy chains on my soul
+lost to the feeling of joy
+myriad of thorns inside out and I'm torn
+
+Mindful state for the soul
 
 right this moment is what I got inside 
 only reason why I'm hardly trying to be found
 
-Mindful state for the soul
 
 
-Dizzy boy lost in the bliss of the words,
-really    kills   chains
-to find my soul
+
+
 
 Addy in my conscious, 
 so you know I’m gonna pop out
