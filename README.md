@@ -21,11 +21,24 @@ Description.
 
 ## Lyrics
 
+https://www.youtube.com/watch?v=_HmYIjmVqtM
+
+https://www.youtube.com/watch?v=3hQkrXdXO50
+
+https://www.beatstars.com/beat/mortal-w-roosevelt-7504221
+
+https://www.youtube.com/watch?v=jLAUIxq0BYs&list=WL&index=1
+
 ```
-Carry on the rage, I'm ready for the roll out
-Steady in the motion, definition of a lockdown 
-Clear lil savage, Imma ease off nothing nothing to be feared
-Mind is ready, no, keep tellin' me I'm done now
+Carry on the rage, 
+I'm ready for the roll out
+Steady in the motion, 
+definition of a lockdown 
+Clear lil savage, 
+Imma ease off nothing 
+nothing to be feared
+Mind is ready, no, 
+keep tellin' me I'm done now
 
 Carry on the rage, I'm ready for the roll out
 Steady in the motion, definition of a lockdown 
@@ -34,8 +47,13 @@ Mind is ready, no, keep tellin' me I'm done now
 
 Dizzy boy lost in the bliss of the words,
 really hiss kills heavy chains on my soul
-lost to the feeling of joy
-myriad of thorns inside out and I'm torn
+diss after diss, better shoot never miss
+seem like I'm lost to the feeling of joy
+
+myriad of thorns growing inside and I'm torn
+blessed by the fallen in triad with thoughts
+
+runnin' the agency and waiting for fall
 
 Mindful state for the soul
 
